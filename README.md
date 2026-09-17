@@ -15,7 +15,7 @@ https://github.com/user-attachments/assets/a9528362-52d3-4c56-b111-65510aa36a47
 
 
 
-## ...and unscrew them:
+## ...and unscrew things:
 
 
 
